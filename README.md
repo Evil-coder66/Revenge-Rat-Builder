@@ -6,9 +6,7 @@ video : https://youtu.be/fNqtxeyEow4
 
 
 Contact me :
-Discord username : Ibrahim Rady#6287
-
-Email : abrahymrady540@gmail.com
+Discord username : Evil Coder#6287
 
 
 donation:
